@@ -1,2 +1,2 @@
 # manu
-bye
+bye frnds
